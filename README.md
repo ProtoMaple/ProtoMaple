@@ -2,9 +2,8 @@
 *ੈ✩‧₊˚༺☆༻ੈ✩‧₊˚ੈ✩‧₊˚༺☆༻ੈ✩‧₊˚
 ˙⊹「📺」⊹˙
 
-19 
-currently in college  
-In the UK 
+19, currently in college, In the UK 
+
 Mr. Puzzles yumeshipper (idc ab doubles lmao ily all), he is my biggest comfort character and any SMG4/CAV fans are welcome to chill with me :3 
 
 🦈⋆.ೃ࿔:･*ੈ✩‧₊˚༺☆༻ੈ✩‧₊˚ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
