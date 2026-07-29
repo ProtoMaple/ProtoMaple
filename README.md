@@ -2,9 +2,9 @@
 *ੈ✩‧₊˚༺☆༻ੈ✩‧₊˚ੈ✩‧₊˚༺☆༻ੈ✩‧₊˚
 ˙⊹「📺」⊹˙
 
-19, currently in college, In the UK 
+19, In the UK so it may be mid to late afternoon when i'm usually playing (sometimes i'm on late at night)
 
-Mr. Puzzles yumeshipper (idc ab doubles lmao ily all), he is my biggest comfort character and any SMG4/CAV fans are welcome to chill with me :3 
+Mr. Puzzles yumeshipper (idc ab doubles lmao ily all), he is my biggest comfort character and I heavily relate to and identify with him, any SMG4/CAV fans are welcome to chill with me :3 
 
 🦈⋆.ೃ࿔:･*ੈ✩‧₊˚༺☆༻ੈ✩‧₊˚ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 
@@ -18,7 +18,7 @@ I'm VERY open to RP, i love roleplaying, You'll probably see me at docs often. I
 
 I have no current diagnosis so please don't flame me, but i am trying to get on the track so getting an ASD/Autism and maybe an ADHD assessment, and have always believed myself to have these disabilities, so please be patient with me! crowds overstimulate me easily and i do not like being covered unless sm1 I'm comfortable with is cuddling me.
 
-Please IWC, I'm a shy person, even online i find socializing very difficult with new people, i promise I'm not trying to be rude or standoffish, if you're a kind, understanding person then I'll love interacting with you in general.
+Please IWC, I'm a shy, very unsocialised person, even online i find socializing very difficult with new people, i promise I'm not trying to be rude or standoffish, if you're a kind, understanding person then I'll love interacting with you even if my messages may come off as a bit awkward :)
 
 Please DNI if you're in these fandoms: Helluva, Hazbin, Country ANYTHING (humans, balls). Forsaken, Hetalia.
-General DNI's: PROSHIP, RACIST, HOMO/TRANSPHOBE, ISREAL SUPPORTERS.
+General DNI's: PROSHIP, RACIST, HOMO/TRANSPHOBE, ISREAL SUPPORTERS, ZOO'S
