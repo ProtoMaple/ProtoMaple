@@ -20,5 +20,6 @@ I have no current diagnosis so please don't flame me, but i am trying to get on 
 
 Please IWC, I'm a shy, very unsocialised person, even online i find socializing very difficult with new people, i promise I'm not trying to be rude or standoffish, if you're a kind, understanding person then I'll love interacting with you even if my messages may come off as a bit awkward :)
 
-Please DNI if you're in these fandoms: Helluva, Hazbin, Country ANYTHING (humans, balls). Forsaken, Hetalia.
+Please DNI if you're in these fandoms: Helluva, Hazbin, Country ANYTHING (humans, balls). Forsaken, Hetalia, Harry Potter
+
 General DNI's: PROSHIP, RACIST, HOMO/TRANSPHOBE, ISREAL SUPPORTERS, ZOO'S
